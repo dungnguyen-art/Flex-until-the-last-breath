@@ -28,3 +28,34 @@
 ### Địch nghĩa
     ```Chúng tôi đã sóng ở Paris từ năm 1990 đến năm 2000, một năm sau đó chúng tôi chuyển đến sống ở New York.```
     
+<font color = "blue"> 10. I .....(not, see) my uncle for years. </font>
+
+### Từ vựng
+
+### Giải thích
+    1. có for + khoảng thời gian ==> Dùng hiện tại hoàn thành
+### Đáp án
+    1. haven't seen
+
+## Dịnh nghĩa
+
+11. Children ... (challenge) their parents'authority far more nowadays than they ... (do) in the past.
+
+### Từ vựng
+### Giải thích
+    1. nowdays --> thì hiện tại đơn.
+    2. in the past --> quá khứ đơn.
+### Đáp án
+    1. challenge
+    2. did
+### Dịch nghĩa
+    - Trẻ em ngày nay thách thức quyền lực của cha mẹ nhiều hơn nhiều so với họ đã từng làm trong quá khứ.  
+
+<font color = "blue"> 12. Vegetarianism...(be) very popular these days. </font>
+### Từ vựng.
+    1. Vegetarianism (n) Việc ăn chay
+### Giải thích
+### Đáp án
+    1. is
+### Dịch nghĩa
+
