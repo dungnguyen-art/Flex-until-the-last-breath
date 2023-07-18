@@ -52,10 +52,35 @@
     - Trẻ em ngày nay thách thức quyền lực của cha mẹ nhiều hơn nhiều so với họ đã từng làm trong quá khứ.  
 
 <font color = "blue"> 12. Vegetarianism...(be) very popular these days. </font>
+
 ### Từ vựng.
     1. Vegetarianism (n) Việc ăn chay
 ### Giải thích
 ### Đáp án
     1. is
 ### Dịch nghĩa
+  
 
+13. Nowadays, electrical goods....(be) almost double the price they ....(be) a few years ago.
+### Từ vựng
+1. 
+### Giải thích & Đáp Án 
+1. Nowadays -> Hiện tại đơn ==> are
+2. few years ago -> Quá khứ đơn ==> were 
+### Dịch nghĩa
+1. Ngày nay, gía các mặt hàng điện tử gần như gấp đôi so với vài năm trước.
+  
+14. In the old days we ....(get) a visit from the vet maybe once a year.
+### Từ vựng
+1. vet, veterinarian : Bác sỹ thú y
+### Giải thích & Đáp Án
+1. In the old days = in the past --> Quá khứ đơn ==> got
+### Dịch nghĩa
+-> Ngày xưa, chúng ta có thể chỉ gặp bác sĩ thú y mỗi năm một một lần.
+
+15. I hope someday we .....(have) enough money to retire.
+### Từ vựng
+### Giải thích & Đáp Án
+1. someday (ngày nào đó) -> Tương lai đơn ==> will have
+### Dịch nghĩa
+1. Tôi hy vọng, một ngày nào đó chúng ta sẽ có đủ tiền để nghỉ hưu
